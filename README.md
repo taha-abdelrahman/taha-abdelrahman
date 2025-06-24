@@ -38,8 +38,9 @@ I also have strong experience designing modular systems for **Discord bots**, we
 ## 📫 Contact
 
 - Email: taha.abdelra7man@email.com
-- Discord: `.6ah`
 - LinkedIn: [linkedin.com/in/taha-abdelra7man](https://linkedin.com/in/taha-abdelra7man)
+- Instagram: [@x.tvhv](https://www.instagram.com/x.tvhv/)
+- Discord: `.6ah`
 
 ---
 
